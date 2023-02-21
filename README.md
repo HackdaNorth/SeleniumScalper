@@ -1,2 +1,2 @@
 # SeleniumScalper
-can't beat em join em  ¯\_ (ツ)_/¯
+can't beat em join em   '' ¯\_ (ツ)_/¯ ''
